@@ -1,2 +1,0 @@
-# MaruxHub
-sad
